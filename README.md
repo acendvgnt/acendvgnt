@@ -1,3 +1,4 @@
 👁‍🗨 Nothing to see here...
 
-![](https://cdn.discordapp.com/attachments/279226568964833281/850715560757297172/quality_github.gif)
+
+![quality_github](https://github.com/acendvgnt/acendvgnt/assets/85397982/bac30bd9-014f-44ab-a480-4de9d7e0fd87)
